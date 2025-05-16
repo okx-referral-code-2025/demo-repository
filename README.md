@@ -1,4 +1,130 @@
-# Welcome to your organization's demo respository
-This code repository (or "repo") is designed to demonstrate the best GitHub has to offer with the least amount of noise.
+<h1>OKX Referral Code 69809443 – Unlock Up to 10,000 USDT Bonus & 50% Trading Fee Discount [2025 Update]</h1>
 
-The repo includes an `index.html` file (so it can render a web page), two GitHub Actions workflows, and a CSS stylesheet dependency.
+  <p>Looking to jumpstart your crypto trading journey with maximum rewards? Use the <strong>OKX referral code 69809443</strong> when signing up to receive a <strong>sign-up bonus of up to 10,000 USDT</strong> and enjoy a <strong>50% discount on trading fees</strong>. Whether you call it a <em>referral code</em>, <em>promo code</em>, or <em>invite code</em>, this is your key to unlocking exclusive OKX benefits as a new user in 2025.</p>
+
+  <h2>✅ Quick Summary – OKX Referral Code 69809443</h2>
+
+  <table>
+    <tr>
+      <th>Offer</th>
+      <th>Details</th>
+    </tr>
+    <tr>
+      <td>Referral Code / Invite Code</td>
+      <td><strong>69809443</strong></td>
+    </tr>
+    <tr>
+      <td>Sign-Up Bonus</td>
+      <td>Up to <strong>10,000 USDT</strong></td>
+    </tr>
+    <tr>
+      <td>Fee Discount</td>
+      <td><strong>50% off trading fees</strong></td>
+    </tr>
+    <tr>
+      <td>Eligibility</td>
+      <td><strong>New users only (2025)</strong></td>
+    </tr>
+    <tr>
+      <td>Registration Link</td>
+      <td><a href="https://okx.com/join/69809443" target="_blank">Sign up now</a></td>
+    </tr>
+  </table>
+
+  <h2>🔍 What is OKX?</h2>
+  <p><strong>OKX</strong> is a top-tier cryptocurrency exchange that offers advanced trading tools, powerful security features, and a vast ecosystem of crypto products — including spot and futures trading, staking, DeFi, and NFTs. In 2025, OKX continues to expand globally, offering competitive rates, innovative features, and high-value user rewards.</p>
+
+  <h2>🎁 What Is the OKX Referral Bonus in 2025?</h2>
+  <ul>
+    <li>💰 Up to <strong>10,000 USDT</strong> in sign-up bonuses</li>
+    <li>⚡ A <strong>50% discount</strong> on trading fees</li>
+    <li>🪂 Access to exclusive airdrops and token launches</li>
+    <li>🧩 Extra rewards for completing trading tasks and referring others</li>
+  </ul>
+
+  <h2>🛠️ How to Use the OKX Referral Code</h2>
+  <ol>
+    <li>Go to: <a href="https://okx.com/join/69809443" target="_blank">https://okx.com/join/69809443</a></li>
+    <li>Create a new account</li>
+    <li>Enter the <strong>referral code: 69809443</strong> during sign-up</li>
+    <li>Complete KYC (identity verification)</li>
+    <li>Start trading and completing reward tasks to unlock bonuses</li>
+  </ol>
+  <p><strong>Note:</strong> The referral code must be entered during registration. It cannot be added afterward.</p>
+
+  <h2>💵 Breakdown: How to Earn the 10,000 USDT OKX Bonus</h2>
+  <p>Your bonus is released in tiers as you complete key milestones:</p>
+  <ul>
+    <li>✅ First deposit</li>
+    <li>✅ First spot or futures trade</li>
+    <li>✅ Referring friends (and earning from their trades)</li>
+    <li>✅ Staking or using DeFi features</li>
+    <li>✅ Engaging with OKX Learn or bonus campaigns</li>
+  </ul>
+
+  <h2>⚖️ OKX vs Other Crypto Exchanges in 2025</h2>
+  <table>
+    <tr>
+      <th>Feature</th>
+      <th>OKX</th>
+      <th>Binance</th>
+      <th>Bybit</th>
+    </tr>
+    <tr>
+      <td>Sign-Up Bonus</td>
+      <td>Up to <strong>10,000 USDT</strong></td>
+      <td>600 USDT</td>
+      <td>30,000 USDT</td>
+    </tr>
+    <tr>
+      <td>Fee Discount</td>
+      <td><strong>50%</strong></td>
+      <td>Up to 20%</td>
+      <td>Up to 30%</td>
+    </tr>
+    <tr>
+      <td>Staking & DeFi</td>
+      <td>✅ Available</td>
+      <td>✅ Available</td>
+      <td>⚠️ Limited</td>
+    </tr>
+    <tr>
+      <td>NFT Marketplace</td>
+      <td>✅ Yes</td>
+      <td>✅ Yes</td>
+      <td>✅ Yes</td>
+    </tr>
+    <tr>
+      <td>Trading Interface</td>
+      <td>Beginner to Pro Friendly</td>
+      <td>Intermediate</td>
+      <td>Pro-Focused</td>
+    </tr>
+  </table>
+
+  <h2>❓ Frequently Asked Questions (FAQs)</h2>
+
+  <h3>✅ What is the OKX referral code for 2025?</h3>
+  <p>The official referral code is <strong>69809443</strong>.</p>
+
+  <h3>❗ Can I add the code after registering?</h3>
+  <p>No. The <strong>OKX promo code</strong> must be entered during registration to activate your rewards.</p>
+
+  <h3>🌍 Is this offer available worldwide?</h3>
+  <p>Yes. The <strong>OKX referral bonus</strong> is available to eligible new users globally, including the US, UK, EU, Asia, and MENA regions.</p>
+
+  <h3>🔐 What do I need to qualify for the bonus?</h3>
+  <p>You must be a <strong>new user</strong>, enter the code <strong>69809443</strong> at sign-up, and complete KYC verification.</p>
+
+  <h2>🚀 Start Earning with OKX Today</h2>
+  <p>There’s never been a better time to join OKX. With the <strong>referral code 69809443</strong>, you’ll receive:</p>
+  <ul>
+    <li>💸 Up to <strong>10,000 USDT in new user rewards</strong></li>
+    <li>💹 A <strong>50% discount</strong> on trading fees</li>
+    <li>🧠 Access to OKX’s full suite of advanced trading tools, DeFi, and staking</li>
+  </ul>
+
+  <a href="https://okx.com/join/69809443" class="cta" target="_blank">Sign Up Now to Claim Your Bonus</a>
+
+</body>
+</html>
